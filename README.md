@@ -1,1 +1,0 @@
-# minaerik.github.io
